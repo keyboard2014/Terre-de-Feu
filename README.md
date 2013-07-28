@@ -1,0 +1,4 @@
+Terre-de-Feu
+============
+
+Terres de Feu Requiert Cataclysm Les terres de Feu sont le domaine ardent forgé par les titans pour abriter Ragnaros et ses serviteurs incontrôlables. Après l’émergence d’Aile de mort en Azeroth, Ragnaros et ses sous-fifres ont déferlé sur les flancs du mont Hyjal avant d’être repoussés par les vaillants défenseurs de la montagne sacrée. Désormais, Ragnaros rassemble ceux qui lui sont loyaux pour défendre les terres de Feu contre les champions d’Azeroth.  Noyées sous les cendres, les terres de Feu sont de loin le moins accueillant des domaines élémentaires. L’air en ce lieu aride est saturé en permanence de fumées brûlantes et toxiques. Les seuls refuges face à l’océan de magma bouillonnant qui occupe la plus grande partie des terres de Feu sont quelques rares îlots de roche déchiquetée. Et malgré tout cela, les dangers de cet environnement impitoyable font pâle figure face à l’intensité de la fureur des élémentaires qui y résident.
